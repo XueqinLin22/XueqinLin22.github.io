@@ -1,3 +1,4 @@
+
 Hello. Welcome!
 My name is Xueqin, and I am a third year doctoral student of the School Psychology program at UC Berkeley. I received my B.A in English from Beijing Normal University in 2011, and my Master of Education in Counseling and Human Services from Lehigh University in 2017. Prior to studying at Cal, I provided mental health services for low-income child and adolescent population in Santa Clara County. My primary research interests focus on adolescents' risk and resilience and their impacts on adolescents academic and mental health outcomes. I am also interested in family school partnership of immigrant families.  
 https://static.wixstatic.com/media/f24eee_63a1c07f100445cb9c542832f540b5a1~mv2.jpg/v1/fill/w_920,h_1177,al_c,q_85,usm_0.66_1.00_0.01,enc_auto/xueqin.jpg
